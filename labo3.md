@@ -1,0 +1,1 @@
+House-Targaryen-Main-Shield House Targaryen - the former royal house of the Seven Kingdoms since the War of Conquest. Overthrown in Robert's Rebellion, but restored following the Battle of King's Landing. After Jon Snow rejoined the Night's Watch, House Targaryen became legally extinct. The bloodline of House Targaryen lives in House Baratheon and House Martell
